@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Laeti6
-- 👀 I’m interested in Roller skating
+- 👀 I’m interested in Roller skating, reading
 - 🌱 I’m currently learning UI/UX
 - 💞️ I’m looking to collaborate on TechLabs
 - 📫 How to reach me on Slack
